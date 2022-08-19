@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Cabon-Fiber,your best stranger!
-- 👀 I’m interested in ....I don't know!
-- 🌱 I’m currently learning ....something new.
+- 👀 I’m interested in ....I don't know.....who knows！
+- 🌱 I’m currently learning ....something new，like AI Linux manth and so on!
 - 💞️ I’m looking to collaborate on ...who knows!
 - 📫 How to reach me ...your review is ok!
 
